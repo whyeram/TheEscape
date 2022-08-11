@@ -1,2 +1,1 @@
-# Grapple
-When Viviana Air 317 landed safely after a turbulent but routine flight, the crew and passengers were relieved. However, in the span of those few hours, the world had aged five years - and their friends, families and colleagues, after mourning their loss, had given up hope and moved on. Now, faced with the impossible, they're all given a second chance, but as their new realities become clear, a deeper mystery unfolds and some of the returned passengers soon realize that they may be fated for something greater than they ever thought possible. An emotionally rich, unexpected journey into a world grounded in hope, heart and destiny, lies ahead.
+
